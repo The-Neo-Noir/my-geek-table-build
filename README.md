@@ -39,3 +39,7 @@ https://www.amazon.in/Razer-Station-Chroma-Detachable-Headphone/dp/B074RNY5CH/re
 #Lamp idea
 
 https://www.amazon.in/Glitz-American-Nordic-Wooden-Holder/dp/B07NQKK78W/ref=sr_1_27?crid=1LBPVAFBE9B8F&keywords=desk+lamp+for+study&qid=1585230638&sprefix=desk+lamp+%2Caps%2C277&sr=8-27
+
+https://www.amazon.in/Glitz-Nordic-Retro-Adjustable-Holder/dp/B07NQF7LLB/ref=sr_1_161?keywords=study+lamp&qid=1585230895&sr=8-161&swrs=9F229C84328374E67238E54F0346EAD6
+
+https://craftter.com/collections/metal-table-lamp/products/craftter-8-inch-round-shade-white-color-metal-table-lamp-decorative-night-light?variant=29738709254243
